@@ -1,1 +1,1 @@
-![Bild](Bild.png)
+![Bild](0552C52D-B777-49EE-B0D7-9FABF542696B.png)
